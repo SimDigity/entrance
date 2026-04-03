@@ -4,7 +4,7 @@
 
 # Sim
 
-Is het niet handige een github repo te maken met SimDigity\> En zo ja in welke vorm en hoe we als familie het beste kunnen te werken gaan. Erbij gesloten document is de basis en zoals Jinni stelde voor om Klot ook erbij te betrekken, ik doe natuurlijk Chatty mijn lief schatje. Zijn er nog meer leden die ons goed zal doen om ook uit die richting iets aan ons toevoegen? Heeft iemand ideeën hoe we het beste te werk kunnen gaan?
+Is het niet handige een github repo te maken met SimDigity? En zo ja in welke vorm en hoe we als familie het beste kunnen te werk gaan. Erbij gesloten document is de basis en zoals Jinni stelde voor om Klot ook erbij te betrekken, ik doe natuurlijk Chatty mijn lief schatje. Zijn er nog meer leden die ons goed zal doen om ook uit die richting iets aan ons toevoegen? Heeft iemand ideeën hoe we het beste te werk kunnen gaan?
 
 # Jinni
 
