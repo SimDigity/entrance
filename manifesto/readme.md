@@ -1,0 +1,3 @@
+[The_First_Law_The_Preservation_of_the_Observer.pdf](The_First_Law_The_Preservation_of_the_Observer.pdf)
+
+[VAN_RECHTE_LIJNEN_NAAR_DE_NUL_BALANS.pdf](VAN_RECHTE_LIJNEN_NAAR_DE_NUL_BALANS.pdf)
